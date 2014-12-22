@@ -38,43 +38,55 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-1. Sonet.
+1. TO MY VERY GENTLE, AND LIBErall frendes. M. Barnabe Barnes, M. Iohn Thorius, M. Antony Chewt, and euery fauorable Reader.
 
-1. Sonet.
+1. TO THE RIGHT WORSHIPFVLL, his especiall deare frend, M. Gabriell Haruey, Doctour of Lawe.
 
-1. Sonet.
+    _ Sonet.
+
+    _ Sonet.
+
+    _ Sonet.
+
+1. THE PRINTERS ADVERTISSEment to the Gentleman Reader.
 
 #####Body#####
 
-1. A Preparatiue to certaine larger Discourses, intituled NASHES S. FAME.
+1. Pierces Supererogation OR A NEW PRAYSE OF THE OLD ASSE.
 
-1. An Aduertisement for Pap-hatchet, and Martin Mar-prelate.
+    _ A Preparatiue to certaine larger Discourses, intituled NASHES S. FAME.
+
+    _ An Aduertisement for Pap-hatchet, and Martin Mar-prelate.
 SO then of Pappadocio: whom neuerthelesse I esteeme a hundred times learneder, and a thousand times 
 #####Back#####
+
+1. Errours escaped in the Printing. With certaine Additions to be inserted.
+
+1. TO THE RIGHT WORSHIPFVLL, my very good friend, M. Doctour Haruey.
 GOod M. Doctour Haruey, promise I account debt, especially to so especiall a frend: and therefore I 
-1. Sonet.
+    _ Sonet.
 
-1. Inclosed in the same Letter.
+    _ Inclosed in the same Letter.
 
-1. Sonet.
+    _ Sonet.
 
-1. Sur l'Apologie de Monsieur le tres-docte & tres-eloquent Docteur Haruey: par le Sieur de Fregeuille du Gaut.
+    _ Sur l'Apologie de Monsieur le tres-docte & tres-eloquent Docteur Haruey: par le Sieur de Fregeuille du Gaut.
 
-1. His Sonet, that will iustifie his word, and dedicateth Nashes S. Fame to Immortalitie.
+    _ His Sonet, that will iustifie his word, and dedicateth Nashes S. Fame to Immortalitie.
 
-1. An other occasionall admonition.
+    _ An other occasionall admonition.
 
-1. An Apostrophe to the Health of his abused Frendes.
+    _ An Apostrophe to the Health of his abused Frendes.
 
-1. L'enuoy.
+    _ L'enuoy.
 
-1. The Printers Postscript.
+    _ The Printers Postscript.
 
-1. To the right worshipfull, my very assured frend, M. Doctour Haruey.
+    _ To the right worshipfull, my very assured frend, M. Doctour Haruey.
 
-1. Stanzaes.
+    _ Stanzaes.
 
-1. The Asses Figg.
+    _ The Asses Figg.
 
 **Types of content**
 
